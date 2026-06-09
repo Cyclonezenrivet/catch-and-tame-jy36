@@ -1,4 +1,4 @@
-
+catch and tame Scripts stealth is the best catch and tame Script, featuring no cooldown and teleport. Safe and powerful for all your needs.
 
 
 
